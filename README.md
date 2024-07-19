@@ -1,5 +1,5 @@
 I am an unfunny person, I make unfunny jokes.
-I don't follow trends, and I have no bitches :/
+I don't follow trends
 
 Visit this link
 https://youtu.be/A0ebfvYaZ68
